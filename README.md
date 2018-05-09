@@ -77,10 +77,10 @@ Taariikhda Soomaaliyeed iyo Tartanka Qabiilka – Cabdisalaam Sheekh Xasan
 
 Kobocii Islaamiyiinta Soomaaliya – Cabdishakuur Mire Aadam “Cobol”
 
--Gobolka Gedo iyo Ururka Al-Itixaad Al-Islaami – Axmed Faarax Cali “Idaajaa”
--Fanka Maamulka – Cabdiraxmaan Xuseen Samatar
--Maana-Faay – Maxamed Daahir Afrax
--Bisaddii Bubaysta – G. A. Henti
--Dhibbanaha Aan Dhalan – Faarax Maxamed Jaamac “Cawl”
--Halgankii Yoonis Maskiin – Keen Shuulan
--Marin Habawsheyaal – Warbaahinta Dawan iyo Aamin
+- Gobolka Gedo iyo Ururka Al-Itixaad Al-Islaami – Axmed Faarax Cali “Idaajaa”
+- Fanka Maamulka – Cabdiraxmaan Xuseen Samatar
+- Maana-Faay – Maxamed Daahir Afrax
+- Bisaddii Bubaysta – G. A. Henti
+- Dhibbanaha Aan Dhalan – Faarax Maxamed Jaamac “Cawl”
+- Halgankii Yoonis Maskiin – Keen Shuulan
+- Marin Habawsheyaal – Warbaahinta Dawan iyo Aamin
